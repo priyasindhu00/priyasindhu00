@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi sindhu 👋
 
 **priyasindhu00/priyasindhu00** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
